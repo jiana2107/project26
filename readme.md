@@ -1,0 +1,1 @@
+this recipe will teach you how to make a eggless sponge chocolate cake with very less ingredients and it will require a time period of only 45 minutes. This recipe is for a one pound cake.
